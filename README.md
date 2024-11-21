@@ -1,0 +1,2 @@
+# Mining
+None of it 
